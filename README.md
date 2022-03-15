@@ -41,7 +41,14 @@
   Tutor assistance Joem Casusi
 
    ## Walkthrough
- 
+   
+
+https://user-images.githubusercontent.com/93742788/158312860-3615efe7-c541-452c-8e63-29085f12b82d.mp4
+
+https://user-images.githubusercontent.com/93742788/158312889-65149f09-b928-4c49-bfa1-621fdb3ce686.mp4
+
+https://user-images.githubusercontent.com/93742788/158312914-e6234caf-0008-4f88-a469-21509fabd642.mp4
+
 
 ## Questions
 
